@@ -27,7 +27,11 @@ Today's dream was different. We met and talked. It was amicable but I don't know
 
 ### Ending Notes
  [ ] Location
+ 
  [ ] Time
+ 
  [ ] Notification System Primed
+ 
  [ ] Debt 1
+ 
  [ ] Debt 2
