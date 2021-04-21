@@ -1,10 +1,10 @@
 # Here's to loving you every day for the rest of my life
 
 ## 21 Apr
-I got my permanency at work oh and I also saw a car with 1011 plates 😌
+`I got my permanency at work today, oh and I also saw a car with 1011 plates (and a lot of 3s and 2s) 😌`
 
 ### Accidental?
-Forgive me, I have always harbored feelings for you all these years. Perhaps that dream that made me reach out to you was just a catalyst to the beginning of something. I don't know the what or why but it did happen. Having you reciprocate my feelings was probably the peak of my life (as of today).
+Forgive me, I have always harbored feelings for you all these years. Love? Adoration? A simple childhood crush? Perhaps that dream that made me reach out to you was just a catalyst to the beginning of something. I don't know why but it did happen. Having you reciprocate my feelings was probably the happiest I've been.
 
 ## 18 Apr
 
