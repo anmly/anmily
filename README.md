@@ -26,8 +26,8 @@ I dream of you almost every day. I get to see you even though you are so distant
 Today's dream was different. We met and talked. It was amicable but I don't know what we talked about.
 
 ### Ending Notes
- [ ] Place
- [ ] Time
- [ ] Notification
- [ ] Debt 1
- [ ] Debt 2
+1. [ ] Location
+2. [ ] Time
+3. [ ] Notification System Primed
+4. [ ] Debt 1
+5. [ ] Debt 2
