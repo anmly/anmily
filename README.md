@@ -24,3 +24,10 @@ Tell me your dreams, what drinks did we end up getting? This might be rude but i
 I dream of you almost every day. I get to see you even though you are so distant in them. I think of you every day. I wish I could see you up close but that we will see.
 
 Today's dream was different. We met and talked. It was amicable but I don't know what we talked about.
+
+### Ending Notes
+[] Place
+[] Time
+[] Notification
+[] Debt 1
+[] Debt 2
